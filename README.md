@@ -1,2 +1,2 @@
-# tidehost-coming-soon.io
-The «‎soon»‎ page of TideHost 📝
+# 🔵 TideHost
+In the process of creation.
